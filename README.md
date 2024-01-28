@@ -1,0 +1,1 @@
+@NetworkClosed this man is selling ddos file script and api for cheap 5000$. Note ddos can destroy whole site. If you send king of darknet code he will sell it to you for 3000$. If you collect 10 clients he will ddos for free
